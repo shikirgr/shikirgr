@@ -1,4 +1,4 @@
 
 
 <p align="center">
-<img src="https://i.pinimg.com/originals/8e/42/5b/8e425b92e736cf83b8780837a0332b1f.gif">
+<img src="https://static.wikia.nocookie.net/fategrandorder/images/0/09/Sticker_casgil.png/revision/latest?cb=20240222060700">
