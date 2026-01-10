@@ -1,6 +1,4 @@
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/87aeab9ff4ef78d878f93f053f3bc8aa/67d97594757c6808-a9/s2048x3072/494f0ae684b1787de05e1d08ade30838d10a0aca.jpg">
-<p align="center">
-  game rac toi yeu
+  <img src="https://i.pinimg.com/1200x/50/50/21/505021ed36a725897d2a8cf7a62fe651.jpg">
