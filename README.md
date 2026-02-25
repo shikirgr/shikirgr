@@ -1,6 +1,6 @@
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/cb03c90c87bab1af7b1a32e0c1487198/7d10e40891dfa8dc-b6/s2048x3072/a8b5ea2eae3855b7a8a461c0cedbf06e32944ff9.jpg">
+  <img src="https://64.media.tumblr.com/6dfb00cfa83ba7ce79ea0bfca88b7cb6/a0ecdab8c1abcc89-55/s540x810/f4e04ab203e5161625c01013cf8bfb4b2366795e.pnj">
 <p align="center">
-im lazy as hell
+<img src="https://64.media.tumblr.com/b5c579e7a2241d01c9b1550f4f480fbe/0d66c75a92c4bea3-f7/s540x810/effc6439ab7e39104339f4776e160039d61c68d3.gifv">
